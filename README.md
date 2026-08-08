@@ -13,4 +13,4 @@ my husband btw ^ <br>
 im 20! Christian : mixed origin plural : auDD : fictosexual : yumeship & fictkin!ㅤ<br>
 
 <p align="center">
-dni: radqueer, 16 and under (unless friend), anti-endo/willo, sysmed, syscourse, shipcourseㅤ<br>
+dni: radqueer, 16 and under (unless friend), anti-willo, sysmed, syscourse, shipcourseㅤ<br>
