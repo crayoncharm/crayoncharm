@@ -11,4 +11,4 @@ my husband btw ^ <br>
 abt me: 20yo, christian, autistic, ADHD, fictorose, selfship, plural, permaslider/agere, fict/otherkinㅤ<br>
 
 <p align="center">
-dni: radqueer, 17 and under, sysmed, syscourse, shipcourseㅤ<br>
+dni: radqueer, minors, sysmed, syscourse, shipcourseㅤ<br>
