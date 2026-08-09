@@ -8,7 +8,7 @@ my husband btw ^ <br>
 <p align="center">
 <img alt="Hits" src="https://hits.sh/github.com/strawberryspringtime/hits.svg?label=flowers&color=FFA6BB&style=plastic"/></a>
 <p align="center">
-im 20! Christian : mixed origin plural : auDD : fictosexual : yumeship & fictkin!ㅤ<br>
+abt me: 20yo, christian, autistic, ADHD, fictorose, selfship, plural, permaslider/agere, fict/otherkinㅤ<br>
 
 <p align="center">
 dni: radqueer, 17 and under, sysmed, syscourse, shipcourseㅤ<br>
